@@ -1,0 +1,1 @@
+# komiratsu192.github.io
